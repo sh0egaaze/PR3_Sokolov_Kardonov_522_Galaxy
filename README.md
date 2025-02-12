@@ -1,0 +1,1 @@
+# PR3_Sokolov_Kardonov_522_Galaxy
